@@ -5,6 +5,6 @@
 
 ## Touch me
 
-#### Till I can et my
+#### Till I can get my
 
 # SATISFACTION
